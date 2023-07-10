@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @krztnr
+- 👀 I’m interested in a lot of things I can't mention here.
+- 🌱 I’m currently learning cybersecurity.
